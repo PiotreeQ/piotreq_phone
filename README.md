@@ -10,4 +10,6 @@ Phone is not for download (only showcase)
 ![image](https://github.com/PiotreeQ/piotreq_phone/assets/47689001/00b4f94d-5192-4443-bb85-faea247366f4)
 ![image](https://github.com/PiotreeQ/piotreq_phone/assets/47689001/d79f18f5-df65-4270-a88a-2023730ad88b)
 ![image](https://github.com/PiotreeQ/piotreq_phone/assets/47689001/36d727fd-8929-4950-8c04-24aa9e6596f8)
-
+![image](https://github.com/PiotreeQ/piotreq_phone/assets/47689001/b6edbb47-8efa-40b6-887a-06b9d614d2b6)
+![image](https://github.com/PiotreeQ/piotreq_phone/assets/47689001/232538c6-f3d2-4135-9c6f-1abc11db5bc9)
+![image](https://github.com/PiotreeQ/piotreq_phone/assets/47689001/540e92c9-3dec-4984-b5ee-0715ff8393be)
